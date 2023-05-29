@@ -7,4 +7,4 @@
 
 #### China 
 
-![image](https://github.com/LNshuti/great-power-economics/assets/13305262/88ed38d7-39d5-4d55-b291-93e1758f26f5)
+![image](https://github.com/LNshuti/great-power-economics/assets/13305262/3be886ce-be1d-4292-a62d-388ca784565f)
